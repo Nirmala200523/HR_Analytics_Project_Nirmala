@@ -54,4 +54,4 @@ HR-Attrition-Analytics-Dashboard
 
 NAME:V.Nirmala
 PHONE: 8897629348s
-E-MAIL:
+E-MAIL:nirmalagooty2005@gmail.com
